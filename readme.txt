@@ -1,2 +1,2 @@
 shi jian neng shuo ming shen me.
-shuo ming ai . 
+shuo ming ai AND simple. 
