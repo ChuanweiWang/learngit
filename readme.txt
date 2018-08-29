@@ -1,1 +1,2 @@
-shi jian neng shuo ming shen me. 
+shi jian neng shuo ming shen me.
+shuo ming ai . 
